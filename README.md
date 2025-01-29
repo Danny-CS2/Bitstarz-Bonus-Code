@@ -19,7 +19,7 @@ The Bitstarz promo code is a unique alphanumeric code that players can use durin
 
 ## **Bitstarz** **Promo Codes for 2025**
 
-| **Promo Code** | **Coins.Game bonus offer** |
+| **Promo Code** | **Bitstarz bonus offer** |
 | -------------- | -------------------------- |
 | **HELLA** | Get 125% Bonus up to 500€|
 | **CSGO100** | Get 5 BTC + 210 free spins|
